@@ -1,5 +1,5 @@
 Hi, I’m @ayoeyesan
-I’m interested in the applications of computer science in the fields of psychology and astrophysics
+I’m interested in the applications of computer science in the fields of psychology and astrophysics.
 I’m looking to collaborate on pretty much anything!
 How to reach me: email - ayoeyesan@icloud.com
 
